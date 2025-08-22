@@ -1,2 +1,2 @@
-# 👋 Hi, I’m Alexis
+# 👋 Hi, I’m Alexis Laris
 👀

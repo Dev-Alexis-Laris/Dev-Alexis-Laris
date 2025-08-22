@@ -1,2 +1,2 @@
 # 👋 Hi, I’m Alexis Laris
-👀 Developer
+👀 Software Engineer
